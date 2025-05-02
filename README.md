@@ -1,1 +1,1 @@
-# INF206-2025-A-Kelompok6
+# SINF206-2025-A-Kelompok6
